@@ -41,4 +41,5 @@ Responsible 🤝
 Team collaboration skills 🤖
 Communication skills 🗣️
 Contact:
+
 Gmail ✉️: adilkalbaev2004@gmail.com ✉️
